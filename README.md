@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning SQL and Python
 - 💞️ I’m looking to collaborate on any data projects
 - 📫 How to reach me @irninuraini Linkedin
-- 😄 Pronouns: 
+- 😄 Pronouns: irni!~
 - ⚡ Fun fact: i love helping business to grow~
 
 <!---
